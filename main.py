@@ -17,7 +17,7 @@ and the door, surprised,
 swung open by itself.
 
 Now the road is ours to choose,
-the choosing ours to do:
+and ours to walk:
 two hands, one handle,
 one way through.
 """
